@@ -5,6 +5,15 @@ I’m currently a 3rd year majoring in Psychological Science and Informatics @ U
 
 With experience in both design and management, I enjoy taking projects from ideation all the way through to execution. I focus on user research, prototyping, and product strategy, ensuring that the end result is not only visually appealing but also solves real problems for users. My background in diverse fields, including full-stack development, gives me a well-rounded approach to building products that not only look good, but also do good for the people and the planet 🌎!
 
+### Fun Facts About Me!![cat-cat-meme-1](https://github.com/user-attachments/assets/4a3d32ec-27b6-4897-b3bb-8b29ea3598b9)
+
+- I'm from San Francisco Bay area, but lived in China's silicon valley for 10+ years.
+- I can speak four languages🤓☝🏼
+- My MBTI is ENFP/ENTP (I can switch between being logical and creative ig)
+
+
+
+
 
 ## Interested in getting in *touch*🤏🏼?
 
